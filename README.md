@@ -10,4 +10,4 @@
   
   SONUÇ
   
-    ![alt tag](http://image.prntscr.com/image/170bd2506fbf4a578268c711801aceac.png)
+ ![alt tag](http://image.prntscr.com/image/170bd2506fbf4a578268c711801aceac.png)
